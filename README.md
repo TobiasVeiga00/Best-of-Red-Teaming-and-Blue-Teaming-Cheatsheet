@@ -1,1 +1,0 @@
-# Best-of-Red-Teaming-and-Blue-Teaming-Cheatsheet
